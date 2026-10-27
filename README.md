@@ -9,7 +9,7 @@
 
 👉 超悦机场最新入口：  
 
-[超悦机场最新官网](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)
+[超悦机场最新官网](https://a.wwaann.com/?s=chaoyue)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -106,7 +106,7 @@ VPN订阅 | 机场推荐 | Clash节点 | Shadowrocket节点 | 翻墙工具 | 稳
 ## 🌐 官方注册入口（推荐）
 
 👉 超悦机场注册链接：  
-[超悦机场最新官网](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)
+[超悦机场最新官网](https://a.wwaann.com/?s=chaoyue)
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 ## ⚠️ 免责声明（重要）
 
